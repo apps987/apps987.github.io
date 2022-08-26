@@ -1,1 +1,1 @@
-# apps987.github.io
+For Explain game app support contact the developer using email: trytoexplainapp@gmail.com
